@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I love **watching movies** ❤️, especially _Harry Potter_ 👓 and ___Marvel__ movies_ 😻
